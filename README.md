@@ -1,0 +1,1 @@
+# Measuring-the-pules-of-prosperity-and-index-of-economic-freedom-analysis
